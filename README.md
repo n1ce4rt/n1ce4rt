@@ -11,4 +11,4 @@
 ![image](https://user-images.githubusercontent.com/68917691/199708216-7b962246-a96b-40d5-9b3f-01f9e2ed1e08.png)
 
 ## Contact me:
-[![image](https://user-images.githubusercontent.com/68917691/199709793-7c4308b6-5c5c-4740-b9eb-fa2e3c55808f.png)](nice.lol.1994@gmail.com)
+- nice.lol.1994@gmail.com
