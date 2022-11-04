@@ -12,4 +12,5 @@
 
 ## Contact me:
 [![image](https://user-images.githubusercontent.com/68917691/199969819-2ae87939-79f0-45a1-abd3-e8610cf0c081.png)](mailto:nice.lol.1994@gmail.com)
-[![image](https://user-images.githubusercontent.com/68917691/199970670-55400a47-27f3-4696-a8ec-2ef4d1f7e2de.png)](https://t.me/N1CE4RT)
+[![image](https://user-images.githubusercontent.com/68917691/199973669-a0954855-fe1f-4262-a531-ec2e26933b75.png)](https://t.me/N1CE4RT)
+[![image](https://user-images.githubusercontent.com/68917691/199973534-9fbf128f-fef9-427b-87b1-77f8180a71bf.png)](https://discordapp.com/users/N1CE4RT#1062)
